@@ -1003,7 +1003,7 @@ Chair and General Members.
 #### Section 8. Resignation.
 
 A member of the Student Government may resign from office by submitting a
-writen letter of resignation to the President of the Student Government or, in
+written letter of resignation to the President of the Student Government or, in
 the case of a President's resignation, the Vice President for Communications.
 
 #### Section 9. Vacancies.
